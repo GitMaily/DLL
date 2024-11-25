@@ -18,3 +18,4 @@
 - Théo, POSENEL, theo.posenel@gmail.com
 - Mourad, LARBI MESSAOUDI, moradlarbi1@gmail.com
 - Minh Quang, CAO, caominhquang2002@gmail.com
+- Maily, CIAVALDINI, mailyciavaldini@gmail.com
